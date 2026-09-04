@@ -1,0 +1,2 @@
+# moj-kraj-skopo
+predstavitev
